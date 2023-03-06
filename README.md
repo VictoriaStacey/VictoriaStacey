@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi there ☺️
+I'm Victoria, a web developer from 🇬🇧London, England, currently living in 🇫🇷Lectoure, France
 
 
 
